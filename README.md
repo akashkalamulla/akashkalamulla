@@ -17,8 +17,6 @@ I take on freelance projects in scraping, AI integration, and automation.
 
 **→ [View my Upwork profile](YOUR_UPWORK_URL_HERE)**
 
-For direct inquiries: **akashkalamulla1@gmail.com**
-
 ---
 
 ### 🛠️ Stack
